@@ -1,2 +1,2 @@
 # Enter the youtube link and title and download it as .mp3
-# DO NOT SELL!!!!!!!!!!!!!!!!!!!!
+# Pure sharing is prohibited for commercial use!!!!
